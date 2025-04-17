@@ -6,7 +6,7 @@
 - About Me
 https://about.me/tawhidlaskar
 - Instagram
-  https://instagram.com/dih4wat_
+  https://instagram.com/tawheed.xds
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
